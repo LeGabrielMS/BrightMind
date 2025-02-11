@@ -14,5 +14,5 @@ FAKULTAS INDUSTRI KREATIF<br/>
 UNIVERSITAS TEKNOLOGI BANDUNG<br/>
 2025**
 
-Link Backup Jawaban UAS: https://drive.google.com/drive/folders/1CRhrCAGTkKMCJCw254B6j45OzgFvP5H8?usp=sharing
+Link Backup Jawaban UAS: https://drive.google.com/drive/folders/1CRhrCAGTkKMCJCw254B6j45OzgFvP5H8?usp=sharing<br/>
 Link Video Walkthrough Singkat: https://youtu.be/fUJUE1bMfi0?si=JQ6QoPytBqjEZlm5
