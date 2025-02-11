@@ -13,3 +13,5 @@ Tugas Besar untuk mata kuliah Pemrograman Web 1.
 FAKULTAS INDUSTRI KREATIF<br/>
 UNIVERSITAS TEKNOLOGI BANDUNG<br/>
 2025**
+
+Link Backup Jawaban UAS: https://drive.google.com/drive/folders/1CRhrCAGTkKMCJCw254B6j45OzgFvP5H8?usp=sharing
